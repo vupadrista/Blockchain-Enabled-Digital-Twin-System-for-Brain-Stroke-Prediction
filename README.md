@@ -1,0 +1,1 @@
+[Blockchain and Brainstroke Applicaton Setup File.docx](https://github.com/vupadrista/Blockchain-Enabled-Digital-Twin-System-for-Brain-Stroke-Prediction/files/15023114/Blockchain.and.Brainstroke.Applicaton.Setup.File.docx)
